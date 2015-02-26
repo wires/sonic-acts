@@ -167,28 +167,7 @@ doesnt seem to slow down, but accelerate.
 
 if the change accelerates, perhaps something more fundamental is beginning
 
-Q: lukas, "wonderful" ?
+Q: arie, "wonderful" ?
 
 A: dont want kids to live in a world with elephan sculptures
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
