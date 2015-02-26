@@ -27,3 +27,58 @@ all shot in the arctic, sailing around spitsbergen
 
 impact of time, how you perceive time at these different spaces
 
+`showing film`
+
+---
+
+q. in this film you have a situation in the beginning and the end, and then
+a intervention in the middle.
+
+a. yes, during the intervention it causes change, human time
+
+q. here it forms almost like a narrative, was this something that you
+had in mind
+
+a. i think it came with the film, first we were driving with the boat up
+the stream, then it was a small intervention, moving the stearing wheel
+and then circling there
+
+q. yesterday we talked about nature as a spectacle, critique of this
+sublime nature. it also connect to your new project, dying rivers
+
+a. i'm using urany as a kind of tracing colour that you use to trace
+well etc.
+like in hightide and rain of science i like that the beginnen and end
+are the same. so during the intervention it turns green and then at the
+end it turns normal again.
+
+we go to the second film, 14minutes
+
+`captive horizon`
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
