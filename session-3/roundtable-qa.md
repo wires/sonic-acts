@@ -58,8 +58,31 @@ we go to the second film, 14minutes
 
 ---
 
+filmed with a quadcopter, about size and distance
+you hear steps, different sound. you loose sense a bit, then you start
+floating.
 
+q. it seems to come from a mode of control, did you work with drones
+before
 
+a. no, it was my first project with it, it's such a powerful tool. I
+could just film a crater even though it was officially closed, just fly
+over it. many opportunities open
+
+q. there is a moment in the real landscape where it seems to become
+fabricated, did you manipulate the image, did you shoot it like that
+
+a. nothing was manipulated, except this part where there is a shadow on
+the ground, we were very close to the ground
+
+q. following the landscape, the elements, natural things of nature, can
+you tell me where you are going now?
+
+a. next project with vanja smiljanic 2011 total eclipse in australia
+
+30 minute steady camera, with second runrise, called double dawn
+
+20 march in .. islands to document another eclipse
 
 
 
