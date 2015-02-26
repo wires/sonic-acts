@@ -254,7 +254,26 @@ biggest copper mind sit right next to salt lake city.
 could be called sublime landscapes. even if it's a park, it's completely
 defined...
 
+---
 
+ORT will be round 360 projection, maelstrom of "natural images" but all
+3d.
+
+have you seen Ed Atkins show, 3d feels like a natural expression
+
+immersion comes from the outside, once we leave the inside and go to the
+outside and see the sky. it's all about scale.
+
+q. bit more of measure. human measure of all things
+almost post-antopocentric. humans are not the scale of all things
+
+a. humans are indirectly in there, the way it's formulated, sort of
+media mind. eye candy. always the element of intriguing pictures.
+there is always this romantiscism, painters, i enjoyed it a lot.
+the sublime in painting at least, bigger than live, risky business
+
+it's all about being in a safe comfortable distance to the elements of
+nature. and marvelling at it.
 
 
 
