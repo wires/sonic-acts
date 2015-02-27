@@ -56,9 +56,69 @@ will now show *eye tracking* on the images
 
 ---
 
+next step, go there in person
 
+questions i was thinking baout, is how being there would affect the
+senses, change the way we view it
 
+needless to say,it's not the easiest place to reach
 
+found expedition of nordic historians that we going to reenact the
+moments of explorers
 
+there is only a metorological station with 6 people.
 
+6 days on foot, sleeping in huts that metereologic people were keeping
+
+installed the first instruemnts
+
+---
+
+he looks at the landscape while and eye tracking device triggers
+solenoids that ring tuning forks
+
+(very cool)
+
+---
+
+yeah, as i mention in the beginning the bear island is the cadaver of
+the earth, but now I can also conclude that it's 80% of the time also
+fog. not the best place for an eye tracking device.
+
+eyes have two basic motions
+
+- saccades
+- fixations
+
+this becomes a very peculiar experience. you get audible feedback with
+what you are seeing.
+
+you become aware of your eyes are moving, you are hearing your eyes in a
+way.
+
+being a musician i immediately started composing with my eyes.
+
+----
+
+let me show some more of the island, it's not a cadaver actually.
+
+you are all asking, did he meet polar bears??
+sadly/luckily, no. depending how you look at it.
+they have not been seen on the island for many years, because the ice is
+receding.
+
+what the island does have is bird, millions of birds.
+
+on the south of the island there is the largest colony of sea birds at
+the souther hemisphere
+
+did some eyetracking here as well.
+
+*video*
+
+(it's beautiful)
+
+---
+
+there were also some prints, there are now at university of tromsø
 
