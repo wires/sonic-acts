@@ -87,6 +87,51 @@ deep sea in a tunnel. It was a piece for 8 speakers, two subs.
 
 ---
 
+- hear sounds of dophins that are echolocating
+- how can we get so much information from this
+- we dont know
+
+similar to bats
+
+*plays sound of bulldogbat fishing*
+
+cannot hear only with ultrasound detector
+
+the can measure movements on the surface of the water.
+
+they were breaking the surface of the water, sometimes under water, up
+water.
+hear sounds of underwater insects stridulating
+
+they almost sound like a person when slowed down
+
+*plays excerpt from Ultrafield, MoMa 2013*
+
+16 speaker ambisonics setup made of ultrasound recordings
+
+---
+
+it's so much to take in..
+i just want to lay down and listen to the small images
+i tried moving him around to kind of pose for me
+but he got scared, obviously, so tried to digg himself in
+so figured let him alone a bit...
+
+when i came back later, i started paying attention to
+tiny details and saw him do some sort of motion.
+they have obviously been around longer than we are.
+
+---
+
+backswimmer, uses stridulation (laudest wrt size)
+
+
+
+
+
+
+
+
 
 
 
