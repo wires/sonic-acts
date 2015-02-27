@@ -67,9 +67,4 @@ remember when we had the iphone 3GS, oh i was so happy there.
 [.. erm i am going to listen..]
 
 
-
-
-
-
-
-
+awesome.. very gibsonesque
