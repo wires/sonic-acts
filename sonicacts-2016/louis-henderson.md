@@ -114,3 +114,10 @@ what people have in common with animals: body
 - our soul is the most common thing in the world
 - everything is animated
 
+#### 
+
+what is sensible, what is materiality
+
+sensible, perceived through the senses
+
+what is empirically understood
