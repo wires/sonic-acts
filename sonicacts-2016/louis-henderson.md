@@ -69,6 +69,30 @@ sakawa boys ; old hard drives to find photographs, passwords, bank details, etc
 
 rimbaud ~> wants to be come a voyant/seeer ~> poët
 
+### code as a fetishistic form
+
+- macbook alive with it's gold and copper, etc
+- it is made alive with code?
+
+https://hana.sap.com/capabilities.html
+
+- reclaiming animism
+
+showing film  "all that is solid" (2014)
+(economic pressure, aka 'Louis was broke')
+(music by Drexciya)
+
+"nothing is free talk" on free energy thing
+
+# Suggestion about reclaiming animism
+
+> reclaing animism does not mean than that we have even been an animist
+> because one is never an animist in general
+> only in terms of assemblages that generate methamtic
+> animism may however be a name to recalimg these assemblages
+> in order not to enslave us
+
+
 #### The Eyes of a Fly
 
 - fpga/cams' ~ old idea
