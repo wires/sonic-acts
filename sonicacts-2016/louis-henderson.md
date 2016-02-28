@@ -82,7 +82,8 @@ showing film  "all that is solid" (2014)
 (economic pressure, aka 'Louis was broke')
 (music by Drexciya)
 
-"nothing is free talk" on free energy thing
+reminds me of
+https://www.youtube.com/watch?v=telgvKBdY9E
 
 # Suggestion about reclaiming animism
 
