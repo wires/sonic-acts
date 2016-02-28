@@ -70,3 +70,12 @@ victor turner *antropologist*
 - when the past is momentary negated, suspended
 - when the future is not yet begun
 - pure potentiality, when everything trembles in the balance
+
+mentions http://www.thisiscolossal.com/2014/07/hubert-duprat-caddisflies/
+
+beat the sun, so it no longer so fast, has to limp across the sky. so we have time to do what we need
+mahwe - conquer death (half mortal)
+
+[Māui (Māori mythology)](https://en.wikipedia.org/wiki/M%C4%81ui_(M%C4%81ori_mythology))
+
+![Kererū](birdy.png)
